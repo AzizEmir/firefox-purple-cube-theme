@@ -1,0 +1,1 @@
+# firefox-purple-cube-theme
